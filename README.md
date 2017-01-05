@@ -1,2 +1,0 @@
-# practice
-Personal practice dedicated
